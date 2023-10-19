@@ -13,7 +13,7 @@
 
 ### Modo de Preparo
 
- 1. Em uma panela em fogo médio, acrescente a manteiga. Em seguida, coloque o frango picado em cubos na panela e deixe dourar.
+ 1. Em uma panela a fogo médio, acrescente a manteiga. Em seguida, coloque o frango picado em cubos na panela e deixe dourar.
  2. Assim que o frango estiver bem dourado, acrescente a cebola e deixe dourar. Em seguida, coloque o molho de tomate, o catchup, a mostarda e o champignon a gosto.
  3. Abaixe o fogo e coloque o creme de leite e mexa até formar um creme homogêneo.
  4. Está pronto para servir.
